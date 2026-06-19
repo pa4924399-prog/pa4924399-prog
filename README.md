@@ -93,9 +93,9 @@ Worked On:
 
 ## 📫 Connect With Me
 
-📧 Email: your-email@gmail.com
+📧 Email: pa4924399@gmail.com
 
-💼 LinkedIn: https://linkedin.com/in/your-profile
+💼 https://www.linkedin.com/posts/abhay-kumar-pandey-642b372b6_
 
 🐙 GitHub: https://github.com/pa4924399-prog
 
